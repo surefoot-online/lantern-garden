@@ -64,15 +64,11 @@ He was quiet for a moment, with the patience she'd come to understand as the qua
 
 "And now?"
 
-"And now I understand that preventing the emergency is the only version of this story where it doesn't happen." She looked at him. "Kenji stayed because the emergency was already here and the forest needed someone to stay. Liling crossed and came back because her world hadn't reached the emergency yet and there was still time to apply what she'd learned before it did. They were doing the same work. Different phases."
-
-"And you," he said.
-
-"I'm doing both. I'm in the emergency with you. And I'm going back to the prevention work. Both." She paused. "That's the crossing. That's what it's for. Not escape and not replacement. Connection. Between the phase that hasn't arrived yet and the phase that's already here."
+"And now I understand that preventing the emergency is the only version of this story where it doesn't happen." She looked at him. "I'm doing both. I'm in the emergency with you. And I'm going back to the prevention work. Both."
 
 He looked at the map for a long moment. "And when the Tribunal asks you what you were doing," he said.
 
-"I'll tell them I was being the connection," she said. "I'll tell them it's what my grandmother was. It's what Kenji was, from the other direction. It's what the Garden has been facilitating, if the crossing has logic rather than randomness." She paused. "I'll tell them the forest in both worlds is better for it. I'll let that be the argument."
+"I'll tell them I was being the connection," she said. "I'll tell them it's what my grandmother was. It's what Kenji was, from the other direction. It's what the Garden has been facilitating, if the crossing has logic rather than randomness."
 
 "Start with the fourteen nodes," he said.
 
@@ -119,3 +115,4 @@ She thought about the photograph on the bedside table. The young woman at the ed
 *From the testimony record, Session Two: "I want to be precise about what I understood when I entered the testimony. I understood that the crossing had been used well. I understood that the forest in both worlds was better for the people who had found the Garden and used it with the care it deserved. I understood that my grandmother had crossed before me and had done what was needed and had come back and had spent fifty years building the scientific framework that would make what was needed possible. I understood that I had been given an inheritance I had not chosen and would not have traded. I want the Tribunal to understand that when I say 'used well,' I mean it in the precise sense. I mean it geometrically. The argument is spatial. The conclusion is in the data."*
 
 ---
+
