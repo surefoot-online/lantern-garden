@@ -126,6 +126,4 @@ She stood at its edge for three minutes — she counted — and then walked back
 
 The green roofs were good work. They were her work, and her work was good, and she would not let the comparison with Jun's world make her dismissive of it. She would not do that.
 
-But when she closed the laptop at six-thirty, the renderings were still paper-thin.
-
 ---

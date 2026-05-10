@@ -64,7 +64,7 @@ Priya looked at her with the expression Mei had come to recognize as Priya's ver
 
 This was one of the things that had been, in ten weeks, gradually becoming something she had to manage: the coalition's increasing reliance on her spatial analysis. The work was good and she could see it was good and she was glad to do it. But every piece of good work made the story she was telling — the flying in from the coast, the consulting basis — a story that was larger and more load-bearing and more precisely wrong.
 
-After the dispersal, Anya found her in the annex where the mapping equipment was kept, printing the revised corridor model at the larger format the field team needed.
+After the dispersal, Anya found her in the annex where the mapping equipment was kept, printing the revised corridor model at the larger format the field team needed. A field assistant — Sera, who managed the sensor logs and ran Anya's overnight data pulls — was at the far desk, already packing up, and left without looking up when Anya came in.
 
 "Can I ask you something off the record?" Anya said.
 
@@ -110,7 +110,7 @@ Anya looked at her for one more moment, then let it go. "I hope you're planning 
 
 Anya left. Mei waited until she heard the footsteps go back through the main room, then let out a breath she hadn't known she'd been holding. Not because the conversation had been close to exposure — it hadn't been — but because the weight of carrying the half-true story had a physical component she didn't always notice until a moment of near-miss showed her its exact shape.
 
-She was not a person who lied easily. She was becoming a person who was very good at not lying, which was a different skill and came with different costs.
+She was becoming very good at not lying, which was a different skill and came with different costs.
 
 She found Jun in the doorway at the end of the day, looking at the smoke horizon. The orange bar to the south had shifted closer.
 

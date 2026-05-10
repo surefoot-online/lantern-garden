@@ -34,87 +34,49 @@ She sat with this for a long time.
 
 The tea went cold. The Sunday morning continued on the other side of the bad windows — the alley, the neighbor's cat, the ordinary proceeding world. She was aware of these things with the peripheral awareness of someone whose main attention is elsewhere. Inside the apartment, in the specific quality of a Sunday morning that was asking nothing of her, she held the photograph of the photograph and let herself look at it without the deflections she'd been using for two weeks.
 
-She was a landscape architect. She read space. She read a site not only by what was on its surface but by what the surface implied about what was below it — the hidden drainage, the buried history, the structural logic that produced the visible form. She read a terrain by its relationships: what was here because of what was there, what the shape of a ridge told you about the water that had moved through it, what the pattern of vegetation told you about the soil that was invisible beneath it.
+She was a landscape architect. She read a site not only by what was on its surface but by what the surface implied about what was below it — the hidden drainage, the buried history, the structural logic that produced the visible form. She read a terrain by its relationships: what was here because of what was there, what the pattern of vegetation told you about the soil that was invisible beneath it.
 
-She was looking at a photograph of a garden she knew. Not from photographs — from being there. From standing in it, from walking through it, from crossing through it into another world. She knew the way the lantern-plants arranged themselves, knew the specific height of the fruiting structures in relation to the understory behind them, knew the quality of the light that gathered in the space between the plants and the treeline. She knew this place the way she knew sites she had studied for months, because she had studied it for months, though her study had been the study of transit rather than attention.
+She was looking at a photograph of a garden she knew. Not from photographs — from being there. From standing in it, from walking through it, from crossing through it into another world. She knew the way the lantern-plants arranged themselves, knew the quality of the light that gathered in the space between the plants and the treeline. She knew this place the way she knew sites she had studied for months, because she had studied it for months.
 
 And in the photograph: the same place. Fifty years ago. With a woman who was the same height and the same build and carried her posture the same way as the grandmother sleeping in a care facility in Taipei.
 
-The arithmetic was not complicated.
+Her grandmother had been in the Lantern Garden. Had stood at its edge, in the early 1970s, looking in with the posture of someone about to cross — someone who had found the Garden and understood what it was. Standing at the threshold. Facing the light.
 
-Her grandmother had been in the Lantern Garden.
-
-Her grandmother had stood at its edge, in the early 1970s, looking in with the posture of someone about to cross — someone who had found the Garden and understood what it was and was in the process of stepping into it for the first time, or perhaps the second, or perhaps the third. Standing at the threshold. Facing the light.
-
-And on the bedside table of a woman with advancing dementia, in a care facility in Taipei, the photograph had survived the fifty years between then and now. As though it were kept. As though it were not something to be filed in an album or left in a box in a storage unit but something to be close to, something to see from where you lay.
+And on the bedside table of a woman with advancing dementia, the photograph had survived the fifty years between then and now. Not archived. Kept close.
 
 She thought about shoes.
 
 *You mustn't leave your shoes there.*
 
-She thought about the word *crossing.* She thought about the smell that her grandmother had identified on her — the smell of the Garden, of the between-place, carried back on her skin or her clothes or in some register that was not olfactory but that her grandmother's body, which had crossed the same Garden fifty years before, recognized.
+She thought about the word *crossing.* She thought about the smell that her grandmother had identified on her — the smell of the Garden, of the between-place, carried back in some register that her grandmother's body, which had crossed the same Garden fifty years before, recognized.
 
 She thought about Kenji.
 
-She thought about the three-year gap in the institutional record — the Canadian visa renewed three times, the conference registration with no record of presentation, the missing-persons report that she didn't know yet had been filed but whose shape she could feel in the outline of what her mother had told her. Three years. Three years that her grandmother had simply — been elsewhere.
+She thought about the three-year gap in the institutional record — the Canadian visa renewed three times, the conference registration with no record of presentation. Three years that her grandmother had simply — been elsewhere.
 
-She thought about seeds. About what a botanist would bring back from three years in another world. About what a mycorrhizal scientist, twenty years ahead of her field, would recognize in a forest ecosystem facing a collapse that hadn't yet arrived in her own world.
-
-She thought about what you could do with fifty years of preparation, if you were a scientist who knew what was coming and understood that knowing was not the same as being helpless.
+She thought about seeds. About what a botanist would bring back from three years in another world. About what a mycorrhizal scientist, twenty years ahead of her field, would recognize in a forest ecosystem facing a collapse that hadn't yet arrived in her own world. About what you could do with fifty years of preparation, if you understood that knowing was not the same as being helpless.
 
 She set down her phone.
 
-She looked at the bad windows, the alley, the ordinary world.
+She was not the beginning of this story. She was the place where the story became visible again, the way a buried creek becomes visible when the surface conditions change, when enough of the camouflage has eroded to let the actual shape of things through. The story had been running beneath the surface of her family for fifty years. Her grandmother's silence had been its containment. Her mother's unasked questions had been the pressure it built.
 
-Then she picked up her phone and opened her calendar and cancelled the client meeting scheduled for Thursday, citing a family matter in Taipei, which was not untrue. She sent the apology, brief and professional. She did not overthink the wording.
-
-Then she booked a flight.
-
-Not to Taipei — she was going to Taipei next week for work in any case. Not to anywhere new. She booked a flight that established an itinerary, a paper trail, a record of a person who moved through one world and whose movements were accountable. She was doing what her grandmother had done for three years, she understood: building the record of someone who was somewhere specific. Maintaining the story.
-
-It occurred to her, sitting at the kitchen table with the cold tea and the phone photograph and the Sunday morning making its indifferent way through the bad windows, that she had not yet begun to understand what it meant that her grandmother had done this before her. That she was not the first. That the Garden had been there for fifty years, in the same coordinates, having its nature — being what it was — waiting for whoever came to it with enough attention to find their way through.
-
-She thought about what it meant to find something that was already there. Not discovered — the Garden was not something she'd created by finding it. It had been there. Her grandmother had been there. Whatever her grandmother had left there — in the soil of Jun's world, in some specific location that Mei did not yet have coordinates for — had been there for fifty years, waiting.
-
-She was not the beginning of this story.
-
-She was not even its second chapter. She was the place where the story became visible again, the way a buried creek becomes visible when the surface conditions change, when enough of the camouflage has eroded to let the actual shape of things through. The story had been running beneath the surface of her family for fifty years. Her grandmother's silence had been its containment. Her mother's unasked questions had been the pressure it built. And she, Mei, who read landscapes for a living, who understood that what was visible was always a product of what was not — she had simply been the person with the capacity to see.
-
-She thought about the word *inheritance.*
-
-She had always understood herself as her grandmother's intellectual descendant — the ecologically-trained designer who'd gotten there via a different route than botany but had ended up working on the same questions. She had understood the professional lineage without understanding what it was built on. You could not build a lineage of mycorrhizal knowledge across fifty years without that knowledge coming from somewhere. She had assumed it came from the same places knowledge always came from: study, observation, rigorous attention to what was in front of you.
-
-But her grandmother had also been in a world where the forest's crisis was fifty years further along. Had seen what was coming. Had done what scientists do when they see what is coming and have the tools to respond: she had responded.
+She thought about the word *inheritance.* She had understood the professional lineage without understanding what it was built on. Her grandmother had been in a world where the forest's crisis was fifty years further along. Had seen what was coming. Had done what scientists do: she had responded.
 
 Mei looked at the photograph.
 
-She looked at the specific angle of the young woman's body — the slight lean forward, the weight on the front foot. It was the posture of someone who had made a decision and was in the process of acting on it. Not hesitation. Not pause. The beginning of motion, captured at the threshold.
+The specific angle of the young woman's body — the slight lean forward, the weight on the front foot. Not hesitation. Not pause. The beginning of motion, captured at the threshold.
 
 Her grandmother, at the edge of the Garden, in the early 1970s, stepping in.
 
-She thought about what it meant that the photograph had been kept close for fifty years. Not archived. Not forgotten. Kept on a bedside table in a care facility, visible from the bed where her grandmother slept, there in the hours when she was looking at things that were far away and not visible to anyone else in the room.
+She would know later that the photograph was a door. Not a metaphor for a door. The door itself, held at a specific angle, showing the light on the other side.
 
-She looked at the photograph one more time. The young woman at the edge. Facing the light.
-
-"I knew the photograph was significant," she said aloud, to the apartment. To herself. To the version of herself that would be in this room on some future day, having arrived at the understanding that this photograph had started, and wanting to find a line back to the moment before she had it.
-
-She did not know, yet, what the photograph was.
-
-She would know later — would know, in the full way that knowledge settles into certainty and certainty into action — that the photograph was a door. Not a metaphor for a door. Not a way of understanding the door. The door itself, held at a specific angle, showing the light on the other side.
-
-She didn't know this yet.
-
-She knew the photograph was significant.
-
-She knew her grandmother had crossed before her.
-
-She knew that what she'd been calling a situation she needed to resolve was something older and more specific than that: a shape that ran in the maternal line, that her grandmother had lived inside, that had produced seeds and silence and a child and fifty years of botanical work that was twenty years ahead of its time, and that was now producing Mei, who was the next in a sequence she hadn't known she was part of.
+She didn't know this yet. She knew her grandmother had crossed before her. She knew that what she'd been calling a situation she needed to resolve was something older: a shape that ran in the maternal line, that had produced seeds and silence and a child and fifty years of botanical work that was twenty years ahead of its time, and that was now producing Mei, who was the next in a sequence she hadn't known she was part of.
 
 She went to the Lantern Garden in the late afternoon, as the light changed, as the threshold light became something she could step into.
 
 She stood at the edge of it — the way her grandmother had stood in the photograph, she now understood, the way anyone stands at the edge of something they are about to enter for reasons that are not fully resolved but are sufficient.
 
-She crossed.
+She crossed. This time, she did not note the quality of the interval. This time, she was already thinking about what was on the other side.
 
 ---
 

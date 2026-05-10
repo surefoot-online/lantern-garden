@@ -156,7 +156,7 @@ She looked at the model. "Eight weeks, if the beetle pressure stays at current l
 
 Twelve weeks. She saw the number land. Twelve weeks was a long time for people who had been running out of time for three years.
 
-"It's still possible," she said, and she meant it, which was the thing about Mei in these coalition meetings that she had noticed people responding to and could not quite explain: she was not optimistic — she read the models, she knew the probabilities — but she was capable of meaning it when she said it was still possible, and apparently this was different from the formulaic *it's still possible* that most people in the room had been saying to themselves and each other for months. She did not understand exactly why she could mean it here in a way that felt different from her own world, except that she understood the distinction between a problem and a resolved problem and she'd seen worse-looking sites recover when the intervention was right.
+"It's still possible," she said, and she meant it, which was the thing about Mei in these coalition meetings that she had noticed people responding to and could not quite explain. She was not optimistic — she read the models, she knew the probabilities — but she could mean it when she said it, and apparently this was different from the formulaic *it's still possible* that most people in the room had been saying to themselves and each other for months.
 
 After the meeting, the circle of chairs opened into small clusters of two and three. Jun found her at the side table pouring the last of the coffee, which was mostly hot water at this point.
 
